@@ -1,4 +1,4 @@
-
+hypershot no-ban Script offers the most advanced hypershot Script, with no cooldown and instant win. Perfect for dominating any match.
 
 
 
